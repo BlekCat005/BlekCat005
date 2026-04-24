@@ -1,5 +1,5 @@
 # 💫 About Me:
-# Hi, I'm Rizki 👋
+# Hi, I'm Muhamad Rizki 👋
 
 
 ## 🌐 Socials:
